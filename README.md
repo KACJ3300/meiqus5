@@ -1,5 +1,5 @@
 # meiqus5
-美国住宅IP，东南亚住宅IP，免费获取
+静态住宅IP|东南亚住宅IP|美国住宅IP|动态住宅IP|免费住宅IP代理
 免费获取住宅IP，tiktok直播专线
 加入TG交流群
 https://t.me/meiqus5 免费获取住宅IP
